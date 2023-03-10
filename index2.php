@@ -1,1 +1,1 @@
-Hola soy juan jose aragon egea GITHUB
+Hola, soy Juan Jose Aragon Egea.GITHUB
